@@ -1,1 +1,1 @@
-# atitudinal-php-2-bim
+Grupo: Brenda Gabriela Penha Candido Duarte, Eduardo Sierra Rosseto, Gustavo Ricardo de Carvalho e Rafaela Zanetti Baú
